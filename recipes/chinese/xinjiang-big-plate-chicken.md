@@ -6,7 +6,7 @@
 > **Cook time:** 45 min | **烹饪时间：** 45 分钟
 
 ---
-![[Pasted image 20260607215522.png]]
+![](<../../Pasted image 20260607215522.png>)
 ## Ingredients / 食材
 
 ### Chicken & Vegetables / 鸡肉与蔬菜

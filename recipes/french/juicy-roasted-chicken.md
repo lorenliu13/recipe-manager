@@ -7,7 +7,7 @@
 > **Rest time:** 30 min | **静置时间：** 30 分钟
 
 ---
-![[Pasted image 20260607215533.png]]
+![](<../../Pasted image 20260607215533.png>)
 ## Ingredients / 食材
 
 | Amount | Ingredient | 用量 | 食材 |

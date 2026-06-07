@@ -8,7 +8,7 @@
 > **Source:** http://xhslink.com/o/9IDzRXo2IKb
 
 ---
-![[Pasted image 20260607215504.png]]
+![](<../../Pasted image 20260607215504.png>)
 ## Ingredients / 食材
 
 | Amount | Ingredient | 用量 | 食材 |
