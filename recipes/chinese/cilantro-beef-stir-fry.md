@@ -6,6 +6,7 @@
 > **Cook time:** 10 min | **烹饪时间：** 10 分钟
 
 ---
+![[Pasted image 20260607215353.png|350]]
 
 ## Ingredients / 食材
 

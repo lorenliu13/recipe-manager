@@ -6,6 +6,7 @@
 > **Cook time:** 6 hrs (slow cooker High) | **烹饪时间：** 6 小时（慢炖锅高温档）
 
 ---
+![[Pasted image 20260607215625.png|350]]
 
 ## Ingredients / 食材
 
