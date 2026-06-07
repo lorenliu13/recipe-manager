@@ -6,7 +6,7 @@
 > **Cook time:** 35 min | **烹饪时间：** 35 分钟
 
 ---
-
+![](<../figures/Pasted image 20260607223727.png>)
 ## Ingredients / 食材
 
 | Amount | Ingredient | 用量 | 食材 |

@@ -6,7 +6,7 @@
 > **Cook time:** 85 min | **烹饪时间：** 85 分钟
 
 ---
-
+![](<../figures/Pasted image 20260607223753.png>)
 ## Ingredients / 食材
 
 ### Meatballs / 肉丸
